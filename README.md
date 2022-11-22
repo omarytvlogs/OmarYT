@@ -1,2 +1,5 @@
 # OmarYT
-asasasdaas
+my favorite stuff
+-music
+-Gaming
+-vlogs
